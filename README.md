@@ -11,12 +11,12 @@
 #If everybody wanna use my own products Under in use my laws My Rules.
 #but i don't allow use free.
 #I'take money charges for my own products.
-#i never give behalf take money google and International.
+#i never give behalf take my money google and International.
 #I'm only take my money all.
 #I don't fucking care. That is My laws.That is my Value.That is my Rules.
 #Strongly believed myself and mysorftware or my products.
 #I can only maintainance this my own Github products and any others my own products.
-#I don't allow to use China Russia Nortkorea Iran India countrys or flags.
+#I don't allow to use China Russia Nortkorea Iran India USA EUROPE countrys or flags.
 #Any others country or flags if i don't like i must burn this flags or this countrys.
 #Payments diret for my bank Accs .
 #Payments diret fullfill for my github products.
@@ -29,3 +29,4 @@
 #This Github play store Apo can download any other Apps this world .
 #Mymind is infinity strongly believed myself.
 #I created for my own github playstore App and my own github browser frame.
+#
