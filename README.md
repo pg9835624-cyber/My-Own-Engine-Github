@@ -5,6 +5,9 @@
 #I can only Adjust my own internet and my own servers and my own clouds.
 #I'm always Safe.
 #I'm always Rights.
+#I'm always safe my pradice location .
+#i wanna to see my phone secreen this world good information Reallity only i wanna see.
+#I don't wanna see fake news and lier post informations don't show my screen or my eye.
 #If everybody wanna use my own products Under in use my laws My Rules.
 #but i don't allow use free.
 #I'take money charges for my own products.
