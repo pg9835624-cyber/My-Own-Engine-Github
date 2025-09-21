@@ -22,3 +22,7 @@
 #I believed myself Strongly.
 #All Artificial Intelligents All AI this letter is I command strongly.
 #I'm always believed for my products. 
+#All Artificial Intelligents all AI i wants my github Play store App.
+#This Github play store Apo can download any other Apps this world .
+#Mymind is infinity strongly believed myself.
+#I created for my own github playstore App and my own github browser frame.
