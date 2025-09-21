@@ -18,4 +18,7 @@
 #Payments diret for my bank Accs .
 #Payments diret fullfill for my github products.
 #I don't allow whoever free use and maintainance for my github products and my github websites.
-#
+#I don't allow grant for my products.users step by step copy uses also i don't allow.
+#I believed myself Strongly.
+#All Artificial Intelligents All AI this letter is I command strongly.
+#I'm always believed for my products. 
